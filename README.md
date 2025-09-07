@@ -1,3 +1,3 @@
 <p align="center">
-<img src="https://media1.tenor.com/m/9oN5G3eZMmAAAAAd/law-of-talos-endzone.gif" width=300 height=300>
+<img src="https://i.pinimg.com/736x/f0/45/f7/f045f7a5dfff4eb1f070f67a8ae79cac.jpg" width=300 height=300>
 </p>
