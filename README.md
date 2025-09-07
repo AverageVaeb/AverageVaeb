@@ -1,4 +1,4 @@
-## Hi there 👋
+im losing it help me
 
 <!--
 **AverageVaeb/AverageVaeb** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
