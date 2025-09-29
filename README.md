@@ -29,4 +29,4 @@
 
 
 <div align="center">
-Anyways... I'll probably update this sooner or later but feel free to talk to me <3
+Anyways... This is a WIP so I'll probably update this sooner or later but feel free to talk to me <3
