@@ -13,7 +13,7 @@ YO! Call me Average or Hyena, or (for friends) whoever's fronting ^^
 <p/>
   
 <div align="center">
-I'm 15, I have paranoia, I'm a recently discovered OSDD-1B system, anti-harassment, and I'm an absolute bitch /silly
+I'm 15, I have paranoia. Anti-harassment, and I'm an absolute bitch /silly
 <p/>
   
 <div align="center">
