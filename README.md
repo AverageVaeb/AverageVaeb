@@ -8,4 +8,4 @@
 
 
 <div align="center">
-what happened dude
+I totally forgot about this shit website.... follow me!
