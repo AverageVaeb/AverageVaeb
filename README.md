@@ -14,3 +14,10 @@
   </a>
 </p>
 
+HOWDY !!
+I'm AverageVaeb but average is dead... what a loser, call me Hyena ^^
+I'm an OSDD1 System wuh oh, feel free to ask about it thoughhhh !!!
+Where am I? I don't know how youd lose me... but if I'm online i'll be at docks :3
+15 and unlabeled WOOHOO !! Labels SUCK !
+Concert addict + Eurovision addict....
+I don't know what people but in these LOL
