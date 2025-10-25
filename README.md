@@ -16,8 +16,13 @@
 
 HOWDY !!
 I'm AverageVaeb but average is dead... what a loser, call me Hyena ^^
+</p>
 I'm an OSDD1 System wuh oh, feel free to ask about it thoughhhh !!!
+</p>
 Where am I? I don't know how youd lose me... but if I'm online i'll be at docks :3
+</p>
 15 and unlabeled WOOHOO !! Labels SUCK !
+</p>
 Concert addict + Eurovision addict....
+</p>
 I don't know what people but in these LOL
