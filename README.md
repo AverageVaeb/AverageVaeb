@@ -1,6 +1,8 @@
 
-![](https://komarev.com/ghpvc/?username=AverageVaeb&color=lightgrey&label= ⛏Losers )
+![](https://komarev.com/ghpvc/?username=AverageVaeb&color=lightgrey&label= ⛏Competitors )
 
+<p align="center">
+<img src="https://i.pinimg.com/736x/f0/45/f7/f045f7a5dfff4eb1f070f67a8ae79cac.jpg" width=300 height=300>
 </p>
 
 
@@ -9,5 +11,19 @@
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=d1bqsmqsv5xny71hcpjc38d4t&redirect=true">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=d1bqsmqsv5xny71hcpjc38d4t&cover_image=true&theme=natemoo-re&show_offline=true&background_color=2b285d&interchange=false&profanity=false&bar_color=ecc279&bar_color_cover=false">
+  </a>
+</p>
 
-GANG FOLLOW ME I REALLLYYY WANT 100 FOLLOWS BY THE END OF THE YEAR :pray:
+HOWDY !!
+I'm AverageVaeb but average is dead... what a loser, call me Hyena ^^
+</p>
+I'm an OSDD1 System wuh oh, feel free to ask about it thoughhhh !!!
+</p>
+Where am I? I don't know how youd lose me... but if I'm online i'll be at docks :3
+</p>
+15 and unlabeled WOOHOO !! Labels SUCK !
+</p>
+Concert addict + Eurovision addict....
+</p>
+I don't know what people but in these LOL
+HOW DO PEOPLE DO THIS RBO
