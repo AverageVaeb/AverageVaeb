@@ -2,7 +2,7 @@
 ![](https://komarev.com/ghpvc/?username=AverageVaeb&color=lightgrey&label= Stinky-Animals )
 
 <p align="center">
-<img src="https://i.pinimg.com/736x/f0/45/f7/f045f7a5dfff4eb1f070f67a8ae79cac.jpg" width=300 height=300>
+<img src="https://i.pinimg.com/originals/7e/c9/65/7ec9655f7ed016299f6ef6a75ed7f0de.jpg" width=300 height=300>
 </p>
 
 
@@ -15,15 +15,14 @@
 </p>
 
 HOWDY !!
-I'm AverageVaeb but average is dead... what a loser, call me Hyena ^^
+You might know me as that yellow and blue contraversial docks mole
+Or that annoying guy that "starts regi drama" LOL
+I'm Roman of the OSDD1 Jailbreak System, I'm pretty much always at the front desk, come say hi !!
+Bodily we're 15, I'm just a late teenage alter.
+Always C+H for everyone unless I'm with my epic docks gang or I'm with Vixxy (rebzgng)
+I appreciate all of you that just come to say hi or those that compliment my skins ^^
+EVERYTHING about us is unlabeled, I just wanna live, I hate putting myself in categories
 </p>
-I'm an OSDD1 System wuh oh, feel free to ask about it thoughhhh !!!
-</p>
-Where am I? I don't know how youd lose me... but if I'm online i'll be at docks :3
-</p>
-15 and unlabeled WOOHOO !! Labels SUCK !
-</p>
-Concert addict + Eurovision addict....
-</p>
-I don't know what people but in these LOL
-HOW DO PEOPLE DO THIS RBO
+Dont rely on our links at the moment, I'm remaking everything and it is all VERY outdated...
+Please don't copy or inspo my skins, I know some would be honoured, but personally I'm uncomfortable with it... I don't want someone getting credit for something I worked hard on...
+
