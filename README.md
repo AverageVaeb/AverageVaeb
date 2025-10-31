@@ -15,7 +15,7 @@
 </p>
 
 HOWDY !!
-You might know me as that yellow and blue contraversial docks mole
+You might know me as that yellow and blue docks mole
 Or that annoying guy that "starts regi drama" LOL.
 I'm Roman of the OSDD1 Jailbreak System, I'm pretty much always at the front desk, come say hi !!
 Bodily we're 15, I'm just a late teenage alter.
