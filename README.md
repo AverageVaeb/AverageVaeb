@@ -16,13 +16,13 @@
 
 HOWDY !!
 You might know me as that yellow and blue contraversial docks mole
-Or that annoying guy that "starts regi drama" LOL
+Or that annoying guy that "starts regi drama" LOL.
 I'm Roman of the OSDD1 Jailbreak System, I'm pretty much always at the front desk, come say hi !!
 Bodily we're 15, I'm just a late teenage alter.
-Always C+H for everyone unless I'm with my epic docks gang or I'm with Vixxy (rebzgng)
-I appreciate all of you that just come to say hi or those that compliment my skins ^^
-EVERYTHING about us is unlabeled, I just wanna live, I hate putting myself in categories
+Always C+H for everyone unless I'm with my epic docks gang or I'm with Vixxy (rebzgng),
+I appreciate all of you that just come to say hi or those that compliment my skins ^^.
+EVERYTHING about us is unlabeled, I just wanna live, I hate putting myself in categories.
 </p>
-Dont rely on our links at the moment, I'm remaking everything and it is all VERY outdated...
+Dont rely on our links at the moment, I'm remaking everything and it is all VERY outdated.
 Please don't copy or inspo my skins, I know some would be honoured, but personally I'm uncomfortable with it... I don't want someone getting credit for something I worked hard on...
 
