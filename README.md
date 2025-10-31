@@ -26,5 +26,5 @@ EVERYTHING about us is unlabeled, I just wanna live, I hate putting myself in ca
 Dont rely on our links at the moment, I'm remaking everything and it is all VERY outdated.
 Please don't copy or inspo my skins, I know some would be honoured, but personally I'm uncomfortable with it... I don't want someone getting credit for something I worked hard on...
 </p>
-ANYWAY NEW STRAWPAGE COMING SOOONNNNN !!
+CHECK OUT THE NEW STRAWPAGE! I'm making updated one every few months ^^
 
