@@ -27,5 +27,5 @@ Everything is so outdated. Read our strawpageee !
 Please don't copy or inspo my skins, I know some would be honoured, but personally I'm uncomfortable with it... I don't want someone getting credit for something I worked hard on...
 </p>
 CHECK OUT THE NEW STRAWPAGE! I'm making updated one every few months ^^
-
+</p>
 !!!!!!! I AM *****NOT****** A PROSHIPPER BUT I WILL BE FRIENDS WITH THEM !!!!!!
