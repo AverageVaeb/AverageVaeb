@@ -21,11 +21,9 @@ I'm Roman of the OSDD1 Jailbreak System, I'm pretty much always at the front des
 Bodily we're 15, I'm just a late teenage alter.
 Always C+H for everyone unless I'm with my epic docks gang or I'm with Vixxy (rebzgng),
 I appreciate all of you that just come to say hi or those that compliment my skins ^^.
-EVERYTHING about us is unlabeled, I just wanna live, I hate putting myself in categories.
+EVERYTHING about us is unlabeled, and we're anti-harassment. I just wanna live, I hate putting myself in categories.
 </p>
 Everything is so outdated. Read our strawpageee !
 Please don't copy or inspo my skins, I know some would be honoured, but personally I'm uncomfortable with it... I don't want someone getting credit for something I worked hard on...
 </p>
 CHECK OUT THE NEW STRAWPAGE! I'm making updated one every few months ^^
-</p>
-!!!!!!! I AM *****NOT****** A PROSHIPPER BUT I WILL BE FRIENDS WITH THEM !!!!!!
