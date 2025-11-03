@@ -28,4 +28,4 @@ Please don't copy or inspo my skins, I know some would be honoured, but personal
 </p>
 CHECK OUT THE NEW STRAWPAGE! I'm making updated one every few months ^^
 
-I AM NOT A PROSHIPPER BUT I WILL BE FRIENDS WITH THEM
+!!!!!!! I AM *****NOT****** A PROSHIPPER BUT I WILL BE FRIENDS WITH THEM !!!!!!
