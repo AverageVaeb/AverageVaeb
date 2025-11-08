@@ -14,4 +14,4 @@
   </a>
 </p>
 
-fuck this im NOT in the right headspace rn
+i cant stand this anymore
