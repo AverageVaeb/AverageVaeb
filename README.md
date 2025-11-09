@@ -13,17 +13,19 @@
   </a>
 </p>
 
-HOWDY !!
-You might know me as that yellow and blue docks mole
-Or that annoying guy that "starts regi drama" LOL.
-I'm Roman of the OSDD1 Jailbreak System, I'm pretty much always at the front desk, come say hi !!
+HOWDY !! 
+Folloowwww meeeeee !!!!
+</p>
+I'm Roman of the OSDD1 Jailbreak System, I'm pretty much always at the front desk, come say hi !! 
 Bodily we're 15, I'm just a late teenage alter.
-Always C+H for everyone unless I'm with my epic docks gang or I'm with Vixxy (rebzgng),
+</p>
+Always C+H for everyone unless I'm with the epic docks gang or I'm with Vixxy (rebzgng),
+</p>
 I appreciate all of you that just come to say hi or those that compliment my skins ^^.
+</p>
 EVERYTHING about us is unlabeled, and we're anti-harassment. I just wanna live, I hate putting myself in categories.
 </p>
-Everything is so outdated. Read our strawpageee !
-Please don't copy or inspo my skins, I know some would be honoured, but personally I'm uncomfortable with it... I don't want someone getting credit for something I worked hard on...
 </p>
-CHECK OUT THE NEW STRAWPAGE! I'm making updated one every few months ^^
-fuck this im NOT in the right headspace rn
+Everything is so outdated, BUT READ THE STRAWPAGE ITS UPDATED!
+</p>
+Please don't copy or inspo my skins, I know some would be honoured, but personally I'm uncomfortable with it... I don't want someone getting credit for something I worked hard on...
