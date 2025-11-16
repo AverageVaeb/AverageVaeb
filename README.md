@@ -13,19 +13,4 @@
   </a>
 </p>
 
-HOWDY !! 
-Folloowwww meeeeee !!!!
-</p>
-I'm Roman of the OSDD1 Jailbreak System, I'm pretty much always at the front desk, come say hi !! 
-Bodily we're 15, I'm just a late teenage alter.
-</p>
-Always C+H for everyone unless I'm with the epic docks gang or I'm with Vixxy (rebzgng),
-</p>
-I appreciate all of you that just come to say hi or those that compliment my skins ^^.
-</p>
-EVERYTHING about us is unlabeled, and we're anti-harassment. I just wanna live, I hate putting myself in categories.
-</p>
-</p>
-Everything is so outdated, BUT READ THE STRAWPAGE ITS UPDATED!
-</p>
-Please don't copy or inspo my skins, I know some would be honoured, but personally I'm uncomfortable with it... I don't want someone getting credit for something I worked hard on...
+Compliment me, I know i look hot
