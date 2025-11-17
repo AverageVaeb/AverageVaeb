@@ -13,4 +13,4 @@
   </a>
 </p>
 
-Compliment me, I know i look hot
+GITHUB SUCKS LOOK AT MY STRAWPAGE !!!!
