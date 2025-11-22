@@ -13,4 +13,4 @@
   </a>
 </p>
 
-GITHUB SUCKS LOOK AT MY STRAWPAGE !!!!
+im so lazy its funny
