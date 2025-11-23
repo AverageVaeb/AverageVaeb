@@ -13,4 +13,4 @@
   </a>
 </p>
 
-im so lazy its funny
+my songs are so peak, im such a poser
