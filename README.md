@@ -13,4 +13,4 @@
   </a>
 </p>
 
-my songs are so peak, im such a poser
+POSER FOR LIFEEEEEE #1 GABBER LOSER
