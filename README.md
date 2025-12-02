@@ -18,6 +18,6 @@ THIS IS FUNNYYYYYYYY... SOMEONE HOLD ME BACK IM LAUGHINGGGG
 </p>
 --------------------------------------------------------------------------------------------------------------------
 </p>
-SHARING THIS CUZ THERE A TINYYYY BIT ABOUT ME IN THE BOTTOM SOMEWHERE AND I FEEL I NEED TO SHARE THIS:-) 
+MY STATEMENT IS MENTIONED HERE VVVVVV
 </p>
 https://docs.google.com/document/d/11fyr7NmR5iEPVViXOm6srTe9Q9w-_ajZIuinQDtiQ88/edit?tab=t.0
