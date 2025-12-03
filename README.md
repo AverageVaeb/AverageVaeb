@@ -18,6 +18,4 @@ THIS IS FUNNYYYYYYYY... SOMEONE HOLD ME BACK IM LAUGHINGGGG
 </p>
 --------------------------------------------------------------------------------------------------------------------
 </p>
-GWEYSTARS CALLOUT + MY STATEMENT IS MENTIONED HERE VVVVVV
-</p>
-https://docs.google.com/document/d/11fyr7NmR5iEPVViXOm6srTe9Q9w-_ajZIuinQDtiQ88/edit?tab=t.0
+gwey you disappointed me. i expected better from someone as high profile as you.
