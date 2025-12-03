@@ -18,6 +18,6 @@ THIS IS FUNNYYYYYYYY... SOMEONE HOLD ME BACK IM LAUGHINGGGG
 </p>
 --------------------------------------------------------------------------------------------------------------------
 </p>
-MY STATEMENT IS MENTIONED HERE VVVVVV
+GWEYSTARS CALLOUT + MY STATEMENT IS MENTIONED HERE VVVVVV
 </p>
 https://docs.google.com/document/d/11fyr7NmR5iEPVViXOm6srTe9Q9w-_ajZIuinQDtiQ88/edit?tab=t.0
