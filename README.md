@@ -14,7 +14,7 @@
 </p>
 THIS IS FUNNYYYYYYYY... SOMEONE HOLD ME BACK IM LAUGHINGGGG
 </p>
-"For having a load of drama against him, this guy aint that bad!!" -Someone cool TALKING ABOUT ME :-D
+#1 controversial hyena poser
 </p>
 --------------------------------------------------------------------------------------------------------------------
 </p>
