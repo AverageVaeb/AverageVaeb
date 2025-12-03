@@ -19,3 +19,5 @@ THIS IS FUNNYYYYYYYY... SOMEONE HOLD ME BACK IM LAUGHINGGGG
 --------------------------------------------------------------------------------------------------------------------
 </p>
 gwey you disappointed me. i expected better from someone as high profile as you.
+  </p>
+My statement about Gwey: https://rentry.co/ootsxzff
