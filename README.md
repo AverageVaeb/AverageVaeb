@@ -18,6 +18,6 @@ THIS IS FUNNYYYYYYYY... SOMEONE HOLD ME BACK IM LAUGHINGGGG
 </p>
 --------------------------------------------------------------------------------------------------------------------
 </p>
-gwey you disappointed me. i expected better from someone as high profile as you.
+  I FUCKING LOVE PM FROM CANADAS DRAG RACE.
   </p>
 My statement about Gwey: https://rentry.co/ootsxzff
