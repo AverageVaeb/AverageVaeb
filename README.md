@@ -14,6 +14,6 @@
 </p>
   COLOUR MY TREE LOSERS https://colormytree.me/2025/01KBW2H7V1CHZG4M77VG2KWEES
   </p>
-i feel like i should update this but make it meaningful and actually about me
+i suck ass bro what am i doing
   </p>
 My statement about Gwey: https://rentry.co/ootsxzff
