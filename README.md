@@ -17,3 +17,8 @@
 MY GHUB IS SUCH A MESS LMAOO
   </p>
 My statement about Gwey: https://rentry.co/ootsxzff
+
+<p align="center">
+<img src="file:///C:/Users/alana/Downloads/yuh.png" width=3000 height=5
+>
+</p>
