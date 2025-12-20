@@ -14,6 +14,6 @@
 </p>
   COLOUR MY TREE LOSERS https://colormytree.me/2025/01KBW2H7V1CHZG4M77VG2KWEES
   </p>
-MY GHUB IS SUCH A MESS LMAOO
+  merry christmas wokers
   </p>
 My statement about Gwey: https://rentry.co/ootsxzff
