@@ -23,5 +23,5 @@ My statement about Gwey: https://rentry.co/ootsxzff
 
 read my blacklist guys https://docs.google.com/document/d/1I8lJ-6jo5Azell2kggRLoYTqlJ6KQfGkZHb_gnLoWkc/edit?tab=t.qcgn5ov0brle
 </p>
-to the entirety of scs: my personal life/mental state is NOT to be publicised on this document.
+oscar im gonna attack you i swear.
 </p> "brushing your teeth is racist because you are whitewashing your teeth" -roman (a reason for my blacklisT LMAOOO)
