@@ -18,7 +18,7 @@
   </p>
   lmao
 </p>
-My statement about Gwey: https://rentry.co/ootsxzff
+BIGGEST arietty lover EVERRR
 
 </p>
 oscar im gonna attack you i swear.
