@@ -20,8 +20,6 @@
 </p>
 My statement about Gwey: https://rentry.co/ootsxzff
 
-
-read my blacklist guys https://docs.google.com/document/d/1I8lJ-6jo5Azell2kggRLoYTqlJ6KQfGkZHb_gnLoWkc/edit?tab=t.qcgn5ov0brle
 </p>
 oscar im gonna attack you i swear.
-</p> "brushing your teeth is racist because you are whitewashing your teeth" -roman (a reason for my blacklisT LMAOOO)
+</p> "brushing your teeth is racist because you are whitewashing your teeth" -me
