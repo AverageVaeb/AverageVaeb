@@ -12,14 +12,4 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=d1bqsmqsv5xny71hcpjc38d4t&cover_image=true&theme=natemoo-re&show_offline=true&background_color=2b285d&interchange=false&profanity=false&bar_color=ecc279&bar_color_cover=false">
   </a>
 </p>
-  COLOUR MY TREE LOSERS https://colormytree.me/2025/01KBW2H7V1CHZG4M77VG2KWEES
-  </p>
-  merry christmas wokers
-  </p>
-  lmao
-</p>
-BIGGEST arietty lover EVERRR
-
-</p>
-oscar im gonna attack you i swear.
-</p> "brushing your teeth is racist because you are whitewashing your teeth" -me
+ im so fucking peak. yall wanna be me so bad
